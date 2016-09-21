@@ -1,4 +1,4 @@
-![1123](https://github.com/zhejiangxiaomai/picture/jpg/compare.jpg)
+![1123](http://dase.ecnu.edu.cn/liwang/images/compare.jpg)
 
 
 hahhahaha
