@@ -1,4 +1,4 @@
-![1123](http://kurld.com/images/wallpapers/picture/picture-10.jpg)
+![1123](http://img1.imgtn.bdimg.com/it/u=4033491868,3189899599&fm=21&gp=0.jpg)
 
 
 hahhahaha
