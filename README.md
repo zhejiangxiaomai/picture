@@ -1,5 +1,4 @@
-![1123](http://i4.imgbus.com/doimg/4coammbonb1d1d4.jpg)
-![1123](http://i2.imgbus.com/doimg/bcomamonacb8382.jpg)
+![1123](http://p1.bpimg.com/1949/8a29164fff0a2abe.jpg)
 
 
 hahhahaha
